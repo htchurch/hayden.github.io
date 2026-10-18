@@ -4,5 +4,5 @@
 [Two Drinks in at The Oyster Bar](https://www.hobartpulp.com/web_features/two-drinks-in-at-the-oyster-bar) [HOBART] APR. 2024<br>
 [Two Eulogies](https://www.hobartpulp.com/web_features/two-eulogies) [HOBART] MAR. 2024<br>
 [The Horoscope](https://www.hobartpulp.com/web_features/the-horoscope) [HOBART] SEPT. 2023<br>
-[Untitled](https://www.swampspit.com/swamp/2023/september/hayden-church) [SWAMP] SEPT. 2023
+[Untitled](https://www.swampspit.com/swamp/2023/september/hayden-church) [SWAMP] SEPT. 2023<br>
 [Hit Something](https://www.hobartpulp.com/web_features/hit-something) [HOBART] FEB. 2023<br>
